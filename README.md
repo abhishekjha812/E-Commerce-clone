@@ -1,0 +1,6 @@
+# E-Commerce-clone![2022-08-24 (2)](https://user-images.githubusercontent.com/56133988/186461434-0c8de2e3-8311-4d3f-8c86-ae8880a73b9b.png)
+![2022-08-24 (3)](https://user-images.githubusercontent.com/56133988/186461443-49c36b96-272d-4f1f-9c05-aefcadb579fe.png)
+![2022-08-24 (4)](https://user-images.githubusercontent.com/56133988/186461450-78a26492-a3db-479a-a7b6-ea6a209a6699.png)
+![2022-08-24 (5)](https://user-images.githubusercontent.com/56133988/186461455-9f579e75-275b-4c7d-a103-c443ded7c09c.png)
+![2022-08-24 (6)](https://user-images.githubusercontent.com/56133988/186461704-14317357-8099-4a39-a21e-8eb74198c7e7.png)
+![2022-08-24 (7)](https://user-images.githubusercontent.com/56133988/186461708-65b24455-f7fe-420b-9e74-3355d4ca9944.png)
